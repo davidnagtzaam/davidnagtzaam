@@ -1,10 +1,10 @@
 Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)I'm David
 =============================================================================================================================
 
-Digital marketing and technology expert
+Ai and technology expert
 ---------------------------------------
 
-Digital marketing and technology expert, futurist, writer, and speaker. I work in marketing an technology, with a big passion for DLT, AI, and privacy and security technology.
+Ai and technology expert, futurist, writer, and speaker. I work in technology, with a big passion for DLT, AI, and privacy and security technology.
 
 * 🌍  I'm based in Europe
 * 🖥️  View my portfolio on [my website](http://davidnagtzaam.com) 
